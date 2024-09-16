@@ -1,7 +1,7 @@
 ## Olá! EU sou a Maria Eduarda Dias Lopes
 
 - 📖 Estudando Sistema de Informação
-- 📩 Conatate-me no Email: Bavoduda@gmail.com
+- 📩 Conatate-me no Email: marialopes01.e@gmail.com
 - 👧🏾 Pronouns: Ela/Dela
 
 <div>
